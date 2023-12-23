@@ -1,1 +1,1 @@
-# vr-marine-melodies-
+# Marine Melodies VR
